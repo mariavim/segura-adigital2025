@@ -1,0 +1,1 @@
+# segura-adigital2025
